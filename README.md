@@ -1,0 +1,2 @@
+# chennan
+knowledge ≠ understanding
